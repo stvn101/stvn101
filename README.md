@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @stvn101
-- 👀 I’m interested in learninh
+- 👀 I’m interested in learning
 - 🌱 I’m currently learning to vibe code
-- 💞️ I’m looking to collaborate on Luna's world a game like to a Boca for my daughter 
+- 💞️ I’m looking to collaborate on Luna's world a game like toca Boca for my daughter 
 - 📫 How to reach me message me here 
 - 😄 Pronouns: 
 - ⚡ Fun fact: I'm a crane driving carpenter 
